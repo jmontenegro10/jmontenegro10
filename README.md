@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jmontenegro10
+- 👋 Hi, I’m @Javier Montenegro 
 - 👀 I’m interested in IT Architecture & Consulting
 - I’m currently www.gbm.net
 - 📫 How to reach me https://www.linkedin.com/in/javier-montenegro-tijerino/
